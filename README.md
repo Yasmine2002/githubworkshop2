@@ -25,7 +25,7 @@
    
   [ for more information click here](https://www.vrsiddhartha.ac.in)
   
-  ![some college images](https://pbs.twimg.com/media/Es4PND-UUAQ3qW2?format=jpg&name=4096x4096)
+  ![some college images](https://cache.careers360.mobi/media/colleges/reviews/vr2.jpg)
   
   ![some  college images](https://cache.careers360.mobi/media/colleges/reviews/2_6.JPG)
   
