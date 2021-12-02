@@ -37,6 +37,6 @@
   4|bhargavi :green_heart:
   5|aaryan    :orange_heart:
   
-  > focus until the focus is on you :revolving_hearts:
+  > ***focus until the focus is on you***:revolving_hearts:
   
 
